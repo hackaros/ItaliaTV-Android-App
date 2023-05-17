@@ -40,7 +40,7 @@ Dal menu, in alto a sinistra, è possibile accedere a:
 - lista canali Mediaset
 - richiesta canali
 
-Dai pulsanti in basso è possibile accedere a
+Dai pulsanti in basso è possibile accedere a:
 
 - Guida TV
 - Canali
