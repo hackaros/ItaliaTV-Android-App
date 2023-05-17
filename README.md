@@ -7,7 +7,7 @@ Tutta la TV Italiana in chiaro in un'unica app, gratis e senza registrazione
 
 Scarica l'app Italia TV per guardare gratuitamente i canali TV italiani in diretta. Tutta la TV italiana in una sola app!
 
-Lapp consente di vedere tutti i canali della TV italiana e contiene anche una Guida TV italiana, sempre aggiornata, semplice e intuitiva!
+L'app consente di vedere tutti i canali della TV italiana e contiene anche una Guida TV italiana, sempre aggiornata, semplice e intuitiva!
 
 Guarda la TV italiana durante i tuoi viaggi in treno, in autobus ecc.
 
@@ -16,7 +16,7 @@ La Guida TV online e in diretta per essere sempre informato sui programmi dispon
 
 Scarica l'app Italia TV per guardare i Canali della TV italiana su Telefono Cellulare Smartphone o Tablet, senza nessuna antenna, semplicemente utilizzando internet!
 
-Se ti chiedi quale sia la migliore app android per guardare tutti i Canali TV della televisione italiana Scarica l'app android Italia TV - Diretta Canali
+Se ti chiedi quale sia la migliore app android per guardare tutti i Canali TV della televisione italiana Scarica l'app android Italia TV - Android App
 
 - Tutti i canali TV italiani in un'unica app
 - Altissima qualità Video
